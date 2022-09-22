@@ -1,2 +1,2 @@
 # OtanMusic
-just havefuun
+just have fun
